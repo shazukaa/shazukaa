@@ -1,2 +1,2 @@
-Fermawin 2.5mg is a pharmaceutical product that contains letrozole, commonly used as a treatment for hormone-responsive breast cancer in postmenopausal women. It works by reducing estrogen production, inhibiting the growth of estrogen-dependent tumors. Fermawin 2.5mg may also be prescribed for off-label uses, such as improving ovulation in women dealing with fertility issues. Always consult a healthcare professional before using this medication.
-Site: https://pharmaqo.to/product/fermawin/
+"Express your feelings with beautiful Shayari perfect for Instagram posts — from love and heartbreak to motivation and friendship, add poetic charm to every caption!"
+Site: https://attitudeshayar.com/
